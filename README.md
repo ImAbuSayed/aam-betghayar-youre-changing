@@ -19,7 +19,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> نظراتك نار والقلب يدق
+> في سحرك أنا بدأت أغرق
+> عم تتغير وتزيد الحلا
+> تعالى بقربي يا كل الغلا
 > ...
 
 [View Full Lyrics ->](./lyrics.txt)
